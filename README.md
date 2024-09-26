@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Dwi Alfa Rizki
 
-NIM : 
+NIM : 607062400010
 
 ## Instruksi
 
